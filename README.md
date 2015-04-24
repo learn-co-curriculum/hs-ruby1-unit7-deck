@@ -1,0 +1,1 @@
+###[Here](https://docs.google.com/presentation/d/1njVWvkm-bjir6aGeDe9vUsx2A0vdp2bBLKrYIkKy4O0/edit?usp=sharing) is the Day 7 Deck
